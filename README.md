@@ -1,4 +1,4 @@
 # Now Preparing...
 
-**contact**  
+**Contact**  
 email: tsukutarou[at]deltora.quest
