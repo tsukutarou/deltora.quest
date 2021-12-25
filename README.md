@@ -1,1 +1,1 @@
-# 準備中
+email: tsukutarou[at]deltora.quest
